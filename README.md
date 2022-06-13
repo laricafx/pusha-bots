@@ -1,2 +1,2 @@
 # pusha-bots
-ship komutuu dilenen aptal herif .d
+20 star yeter
